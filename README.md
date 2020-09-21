@@ -1,4 +1,12 @@
 # Micca-Is-A-Skid
+
+Credits : Source = y̶u̶l̶l̶y̶#1786
+
+Credits : Cracked Loader = THEGUY3ds#1337
+
+Credits : Crackec Dll = !! hugzho#1337
+
+
 Micca is a paster/skid who sold maven and tried to "expose me"
 
 https://media.discordapp.net/attachments/752608719317237909/757712411653308477/unknown.png - Skid Proof 1
